@@ -1,0 +1,1 @@
+veg pulao is one of the most common rice dishes in India, the other being Veg Biryani. A pulao is a one pot dish of rice and vegetables or a protein cooked together with aromatics (onions, garlic, ginger etc), spices and herbs. There are many variations of making a pulao.
